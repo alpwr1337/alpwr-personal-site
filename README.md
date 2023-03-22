@@ -1,2 +1,2 @@
 # alpwr-personal-site
-aga ananı götünden sikerim yani alpwr#2934 <3
+discord: alpwr#2934 çalarken yaz
